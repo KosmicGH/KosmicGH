@@ -1,0 +1,3 @@
+- 👋 Hello, it's me, a kosmic guy.
+- 👀 I’m interested in games, programming (Wish I could learn, ngl), FNF (or Friday Night Funkin')
+- 🌱 I’m currently learning nothing at the moment.
